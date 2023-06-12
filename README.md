@@ -1,7 +1,7 @@
-- 👋 Hello dears, I’m @Allblue0x
+- 👋 Hello dears, I’m @0xUpdated
 - 👀 I’m interested in alchemy and decentralized things
 - 🌱 I’m currently learning technical alchemy
 - 💞️ I’m looking to collaborate on experts
 - 📫 How to reach me ...
 
-Allblue0x/Allblue0x is a ✨ dreamer ✨ 
+i am NEW now ✨ dreamer ✨ 
